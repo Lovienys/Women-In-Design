@@ -1,1 +1,0 @@
-# Women-In-Design
